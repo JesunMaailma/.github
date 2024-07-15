@@ -1,4 +1,4 @@
-![Jesun Maailma wallpaper](https://github.com/JesunMaailma/.github/assets/56694693/5b02ebce-e34a-49f7-a40d-e1c7c58801b8)
+![Jesun Maailma wallpaper](https://github.com/user-attachments/assets/a8ee261e-0ddd-4d1b-b592-a5836c11bbfe)
 <div align="center">
   <p>Kaikkien viihdyttäjä</p>
 </div>
